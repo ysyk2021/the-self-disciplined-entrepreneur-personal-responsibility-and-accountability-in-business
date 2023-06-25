@@ -1,5 +1,4 @@
-Chapter 8: Holding Yourself Accountable: Techniques for Holding Yourself Accountable
-====================================================================================
+# Techniques for Holding Yourself Accountable
 
 In this chapter, we'll discuss techniques for holding yourself accountable in entrepreneurship.
 

@@ -1,5 +1,4 @@
-Chapter 9: Measuring and Evaluating Self-Discipline Effectiveness: Establishing Key Performance Indicators (KPIs)
-=================================================================================================================
+# Establishing Key Performance Indicators (KPIs)
 
 In this chapter, we'll discuss the importance of establishing key performance indicators (KPIs) for measuring and evaluating self-discipline effectiveness in entrepreneurship.
 

@@ -1,5 +1,4 @@
-Chapter 2: Overview of Self-Discipline: The Impact of Self-Discipline on Business Performance
-=============================================================================================
+# The Impact of Self-Discipline on Business Performance
 
 In this chapter, we'll explore the impact of self-discipline on business performance.
 

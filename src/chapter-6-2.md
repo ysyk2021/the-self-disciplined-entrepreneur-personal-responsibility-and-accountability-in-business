@@ -1,5 +1,4 @@
-Chapter 6: Maintaining Focus and Productivity: Managing Distractions and Time
-=============================================================================
+# Managing Distractions and Time
 
 In this chapter, we'll discuss the importance of managing distractions and time for maintaining focus and productivity in entrepreneurship.
 

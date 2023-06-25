@@ -1,5 +1,4 @@
-Chapter 7: Taking Responsibility for Decisions and Actions: Seeking Feedback and Constructive Criticism
-=======================================================================================================
+# Seeking Feedback and Constructive Criticism
 
 In this chapter, we'll explore how taking responsibility for decisions and actions involves seeking feedback and constructive criticism in your business endeavors.
 

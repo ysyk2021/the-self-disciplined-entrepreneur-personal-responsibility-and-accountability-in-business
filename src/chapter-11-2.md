@@ -1,5 +1,4 @@
-Chapter 11: Conclusion: Final Recommendations for Developing Self-Discipline as an Entrepreneur
-===============================================================================================
+# Final Recommendations for Developing Self-Discipline as an Entrepreneur
 
 In this final chapter, we'll summarize the key takeaways from this book and provide some final recommendations for developing self-discipline as an entrepreneur.
 

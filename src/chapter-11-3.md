@@ -1,5 +1,4 @@
-Chapter 11: Conclusion: Future Directions for Research and Practice
-===================================================================
+# Future Directions for Research and Practice
 
 In this final chapter, we'll discuss future directions for research and practice in self-discipline and entrepreneurship.
 

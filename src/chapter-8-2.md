@@ -1,5 +1,4 @@
-Chapter 8: Holding Yourself Accountable: Creating Accountability Systems and Structures
-=======================================================================================
+# Creating Accountability Systems and Structures
 
 In this chapter, we'll discuss the importance of creating accountability systems and structures in entrepreneurship and techniques for doing so.
 

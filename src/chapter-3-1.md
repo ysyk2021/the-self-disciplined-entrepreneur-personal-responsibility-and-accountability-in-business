@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Psychology of Self-Discipline: Techniques for Understanding the Psychology of Self-Discipline
-==========================================================================================================================
+# Techniques for Understanding the Psychology of Self-Discipline
 
 In this chapter, we'll explore techniques for understanding the psychology of self-discipline and how they can be applied to improve your business success.
 

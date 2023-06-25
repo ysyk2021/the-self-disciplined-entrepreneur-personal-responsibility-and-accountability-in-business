@@ -1,5 +1,4 @@
-Chapter 7: Taking Responsibility for Decisions and Actions: Techniques for Taking Responsibility for Decisions and Actions
-==========================================================================================================================
+# Techniques for Taking Responsibility for Decisions and Actions
 
 In this chapter, we'll discuss techniques for taking responsibility for decisions and actions in entrepreneurship.
 

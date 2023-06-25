@@ -1,5 +1,4 @@
-Chapter 11: Conclusion: Recap of Key Points and Strategies
-==========================================================
+# Recap of Key Points and Strategies
 
 In this final chapter, we'll recap the key points and strategies discussed in this book for developing self-discipline as an entrepreneur.
 

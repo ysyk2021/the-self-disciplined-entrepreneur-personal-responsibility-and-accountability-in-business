@@ -1,5 +1,4 @@
-Chapter 5: Cultivating Habits of Success: Techniques for Cultivating Habits of Success
-======================================================================================
+# Techniques for Cultivating Habits of Success
 
 In this chapter, we'll discuss techniques for cultivating habits of success in entrepreneurship.
 

@@ -1,5 +1,4 @@
-Chapter 4: Developing Strategies for Self-Discipline: Establishing Clear Objectives and Priorities
-==================================================================================================
+# Establishing Clear Objectives and Priorities
 
 In this chapter, we'll explore how to develop strategies for self-discipline by establishing clear objectives and priorities in your business.
 

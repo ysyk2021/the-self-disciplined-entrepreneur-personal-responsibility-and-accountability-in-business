@@ -1,5 +1,4 @@
-Chapter 5: Cultivating Habits of Success: Setting Goals and Measuring Progress
-==============================================================================
+# Setting Goals and Measuring Progress
 
 In this chapter, we'll discuss the importance of cultivating habits of success in entrepreneurship through setting goals and measuring progress.
 

@@ -1,5 +1,4 @@
-Chapter 8: Holding Yourself Accountable: Seeking Support and Guidance
-=====================================================================
+# Seeking Support and Guidance
 
 In this chapter, we'll discuss the importance of holding yourself accountable in entrepreneurship and techniques for seeking support and guidance.
 

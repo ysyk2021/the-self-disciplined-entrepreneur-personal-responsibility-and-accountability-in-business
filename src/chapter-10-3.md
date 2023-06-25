@@ -1,5 +1,4 @@
-Chapter 10: Sustaining Self-Discipline Efforts: Adapting to Changes in the Business Environment
-===============================================================================================
+# Adapting to Changes in the Business Environment
 
 In this chapter, we'll discuss how entrepreneurs can sustain their self-discipline efforts by adapting to changes in the business environment.
 

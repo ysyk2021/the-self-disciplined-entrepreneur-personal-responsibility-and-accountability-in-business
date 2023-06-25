@@ -1,5 +1,4 @@
-Chapter 5: Cultivating Habits of Success: Building Resilience and Perseverance
-==============================================================================
+# Building Resilience and Perseverance
 
 In this chapter, we'll discuss the importance of cultivating habits of success, specifically building resilience and perseverance, in entrepreneurship.
 

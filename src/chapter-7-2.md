@@ -1,5 +1,4 @@
-Chapter 7: Taking Responsibility for Decisions and Actions: Owning Mistakes and Learning from Failure
-=====================================================================================================
+# Owning Mistakes and Learning from Failure
 
 In this chapter, we'll discuss the importance of owning mistakes and learning from failure in entrepreneurship.
 

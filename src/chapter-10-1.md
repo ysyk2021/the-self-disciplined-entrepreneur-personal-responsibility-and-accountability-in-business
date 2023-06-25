@@ -1,5 +1,4 @@
-Chapter 10: Sustaining Self-Discipline Efforts: Techniques for Sustaining Self-Discipline Efforts
-=================================================================================================
+# Techniques for Sustaining Self-Discipline Efforts
 
 In this chapter, we'll explore techniques for sustaining self-discipline efforts over the long-term.
 

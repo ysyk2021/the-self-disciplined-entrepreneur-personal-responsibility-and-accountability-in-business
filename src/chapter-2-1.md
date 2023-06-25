@@ -1,5 +1,4 @@
-Chapter 2: Overview of Self-Discipline: Different Perspectives and Approaches to Self-Discipline
-================================================================================================
+# Different Perspectives and Approaches to Self-Discipline
 
 In this chapter, we'll provide an overview of self-discipline and explore different perspectives and approaches to self-discipline.
 

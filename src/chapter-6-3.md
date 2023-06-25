@@ -1,5 +1,4 @@
-Chapter 6: Maintaining Focus and Productivity: Prioritizing Tasks and Responsibilities
-======================================================================================
+# Prioritizing Tasks and Responsibilities
 
 In this chapter, we'll discuss the importance of maintaining focus and productivity in entrepreneurship through prioritizing tasks and responsibilities.
 

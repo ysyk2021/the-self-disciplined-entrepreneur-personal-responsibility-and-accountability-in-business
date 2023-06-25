@@ -1,5 +1,4 @@
-Chapter 4: Developing Strategies for Self-Discipline: Creating a Plan of Action
-===============================================================================
+# Creating a Plan of Action
 
 In this chapter, we'll explore how to develop strategies for self-discipline by creating a plan of action in your business endeavors.
 

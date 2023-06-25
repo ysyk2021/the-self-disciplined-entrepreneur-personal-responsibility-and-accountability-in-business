@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Psychology of Self-Discipline: Exploring the Relationship between Self-Discipline and Business Success
-===================================================================================================================================
+# Exploring the Relationship between Self-Discipline and Business Success
 
 In this chapter, we'll explore the psychology of self-discipline and its relationship to business success.
 

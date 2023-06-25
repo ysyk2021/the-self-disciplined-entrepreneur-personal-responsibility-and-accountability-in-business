@@ -1,5 +1,4 @@
-Chapter 9: Measuring and Evaluating Self-Discipline Effectiveness: Techniques for Measuring and Evaluating Self-Discipline Effectiveness
-========================================================================================================================================
+# Techniques for Measuring and Evaluating Self-Discipline Effectiveness
 
 In this chapter, we'll discuss the importance of measuring and evaluating self-discipline effectiveness in entrepreneurship and provide techniques for doing so.
 
