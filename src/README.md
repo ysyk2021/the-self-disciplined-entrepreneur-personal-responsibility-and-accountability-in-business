@@ -8,7 +8,4 @@ We begin by exploring the importance of self-discipline in entrepreneurship. We 
 
 With real-world examples, actionable advice, and practical exercises, "The Self-Disciplined Entrepreneur" is a valuable resource for anyone looking to build a successful business. Whether you're just starting out or have been in business for years, this book will provide you with the tools and insights needed to cultivate self-discipline, take personal responsibility, and hold yourself accountable for your actions. By doing so, you'll be well on your way to achieving your entrepreneurial dreams.
 
-
-
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
