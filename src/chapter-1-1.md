@@ -1,4 +1,4 @@
-Chapter 13: Defining the Importance of Self-Discipline in Entrepreneurship
+Defining the Importance of Self-Discipline in Entrepreneurship
 ==========================================================================
 
 Self-discipline is a foundational trait that plays a vital role in entrepreneurship. This chapter explores the significance of self-discipline in fostering personal responsibility, accountability, and success in the business world.

@@ -1,4 +1,4 @@
-Chapter 9: Creating Accountability Systems and Structures
+Creating Accountability Systems and Structures
 =========================================================
 
 Accountability is a key factor in the success of any entrepreneur. It ensures that individuals take ownership of their responsibilities, meet their commitments, and work towards achieving their goals. In this chapter, we will explore the importance of creating accountability systems and structures in business, and how they can foster personal responsibility and drive results.

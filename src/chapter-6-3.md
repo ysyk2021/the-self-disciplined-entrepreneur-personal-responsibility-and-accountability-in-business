@@ -1,4 +1,4 @@
-Chapter 9: Prioritizing Tasks and Responsibilities
+Prioritizing Tasks and Responsibilities
 ==================================================
 
 In the fast-paced world of entrepreneurship, prioritizing tasks and responsibilities is vital for maintaining productivity, efficiency, and ultimately achieving success. This chapter will guide entrepreneurs on effective strategies for prioritizing their workload and responsibilities.

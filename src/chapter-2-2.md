@@ -1,4 +1,4 @@
-Chapter 6: The Impact of Self-Discipline on Business Performance
+The Impact of Self-Discipline on Business Performance
 ================================================================
 
 Self-discipline plays a crucial role in the success of entrepreneurs and their businesses. This chapter delves into the significant impact that self-discipline can have on business performance. By understanding and harnessing the power of self-discipline, entrepreneurs can enhance productivity, make better decisions, build strong relationships, and achieve sustainable growth.

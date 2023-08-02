@@ -1,4 +1,4 @@
-Chapter 9: Setting Goals and Measuring Progress
+Setting Goals and Measuring Progress
 ===============================================
 
 Setting clear goals and measuring progress is a crucial aspect of personal responsibility and accountability in business. This chapter explores effective techniques for setting goals and implementing strategies to track and evaluate progress towards those goals.

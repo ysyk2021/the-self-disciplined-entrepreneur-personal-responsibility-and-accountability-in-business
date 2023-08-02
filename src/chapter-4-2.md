@@ -1,4 +1,4 @@
-Chapter 5: Establishing Clear Objectives and Priorities
+Establishing Clear Objectives and Priorities
 =======================================================
 
 In order to succeed as a self-disciplined entrepreneur, it is crucial to establish clear objectives and priorities. These provide a sense of direction, focus, and accountability in your business endeavors. In this chapter, we will explore the importance of setting clear objectives and priorities, and how to effectively define and prioritize your goals.

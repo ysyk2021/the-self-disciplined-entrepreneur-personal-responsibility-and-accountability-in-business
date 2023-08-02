@@ -1,4 +1,4 @@
-Chapter 12: Techniques for Cultivating Habits of Success
+Techniques for Cultivating Habits of Success
 ========================================================
 
 Cultivating habits of success is vital for personal responsibility and accountability in business. This chapter explores techniques for developing and maintaining habits that contribute to entrepreneurial success, enabling individuals to maximize their potential and achieve their goals.

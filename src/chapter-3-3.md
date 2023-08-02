@@ -1,4 +1,4 @@
-Chapter 14: Exploring the Relationship between Self-Discipline and Business Success
+Exploring the Relationship between Self-Discipline and Business Success
 ===================================================================================
 
 Self-discipline is a fundamental characteristic that significantly influences an entrepreneur's journey towards business success. This chapter delves into the relationship between self-discipline and entrepreneurial achievements, highlighting the ways in which self-discipline contributes to sustained growth and prosperity.

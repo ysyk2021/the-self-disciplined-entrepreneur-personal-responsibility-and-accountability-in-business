@@ -1,4 +1,4 @@
-Chapter 5: Different Perspectives and Approaches to Self-Discipline
+Different Perspectives and Approaches to Self-Discipline
 ===================================================================
 
 In the pursuit of self-discipline as an entrepreneur, there are various perspectives and approaches that can be adopted. This chapter explores different viewpoints on self-discipline and presents a range of approaches that entrepreneurs can consider when cultivating personal responsibility and accountability in their business endeavors.

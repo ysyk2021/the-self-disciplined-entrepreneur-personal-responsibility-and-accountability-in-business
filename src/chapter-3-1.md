@@ -1,4 +1,4 @@
-Chapter 16: Techniques for Understanding the Psychology of Self-Discipline
+Techniques for Understanding the Psychology of Self-Discipline
 ==========================================================================
 
 Understanding the psychology of self-discipline is crucial for entrepreneurs striving to enhance their personal responsibility and accountability. This chapter explores various techniques that can deepen one's comprehension of the psychological aspects underlying self-discipline.

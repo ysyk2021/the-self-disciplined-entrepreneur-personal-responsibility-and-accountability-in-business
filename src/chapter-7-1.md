@@ -1,4 +1,4 @@
-Chapter 8: Techniques for Taking Responsibility for Decisions and Actions
+Techniques for Taking Responsibility for Decisions and Actions
 =========================================================================
 
 Taking responsibility for decisions and actions is a fundamental aspect of personal responsibility and accountability in business. This chapter explores various techniques that entrepreneurs can employ to enhance their ability to take ownership and be accountable for the choices they make and the actions they take.
