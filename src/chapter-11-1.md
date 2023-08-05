@@ -47,4 +47,3 @@ Final Thoughts
 
 Developing self-discipline is critical for success as an entrepreneur. By prioritizing personal responsibility and accountability, setting clear goals and objectives, creating structure and routine, using positive reinforcement, practicing mindfulness, seeking support and accountability, and continuously improving and adapting, entrepreneurs can develop the self-discipline necessary to achieve greater success in their entrepreneurial pursuits. Remember, developing self-discipline is an ongoing process that requires commitment and effort, but the rewards are well worth it. By prioritizing personal responsibility and accountability in your business, you can achieve greater success and fulfillment in your entrepreneurial pursuits.
 
-

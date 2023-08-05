@@ -70,4 +70,3 @@ Conclusion
 
 Identifying the key elements that affect self-discipline is essential for success as an entrepreneur. By prioritizing self-reflection, seeking feedback from others, tracking progress towards objectives, and experimenting with different approaches to self-discipline, entrepreneurs can improve their self-discipline over time and achieve greater success in their entrepreneurial pursuits. Remember, developing self-discipline is an ongoing process that requires commitment and effort, but the rewards are well worth it. By prioritizing personal responsibility and accountability in your business, you can achieve greater success and fulfillment in your entrepreneurial pursuits.
 
-

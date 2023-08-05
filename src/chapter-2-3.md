@@ -2,13 +2,6 @@
 
 In this chapter, we'll provide an overview of self-discipline and explore techniques for overcoming common challenges that entrepreneurs face when trying to maintain self-discipline.
 
-What is Self-Discipline?
-------------------------
-
-Self-discipline is the ability to control one's behavior and resist temptations in order to achieve a set of goals or objectives. It involves making choices that align with long-term objectives rather than short-term desires.
-
-For entrepreneurs, self-discipline is critical for success. It allows them to stay focused on their goals, make rational decisions, and overcome challenges and setbacks.
-
 Common Challenges in Maintaining Self-Discipline
 ------------------------------------------------
 
