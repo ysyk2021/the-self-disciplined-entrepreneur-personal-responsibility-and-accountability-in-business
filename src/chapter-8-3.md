@@ -1,5 +1,3 @@
-Seeking Support and Guidance
-=======================================
 
 In the journey of becoming a self-disciplined entrepreneur, seeking support and guidance is an essential aspect of personal growth and accountability. No entrepreneur can achieve success alone, and learning to leverage the expertise and experiences of others can significantly accelerate progress. In this chapter, we will explore the importance of seeking support and guidance, and how it can enhance personal responsibility and accountability in business.
 

@@ -1,4 +1,3 @@
-# Identifying Key Elements that Affect Self-Discipline
 
 In this chapter, we'll explore the key elements that affect self-discipline and how entrepreneurs can identify them in themselves.
 

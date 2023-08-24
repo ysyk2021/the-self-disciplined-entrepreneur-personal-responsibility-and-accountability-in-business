@@ -1,5 +1,3 @@
-Chapter 6: Maintaining Focus and Productivity
-=============================================
 
 In this chapter, we'll discuss the importance of maintaining focus and productivity in entrepreneurship and provide techniques for doing so.
 

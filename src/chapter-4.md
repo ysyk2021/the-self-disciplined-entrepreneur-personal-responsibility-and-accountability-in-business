@@ -1,5 +1,3 @@
-Chapter 4: Developing Strategies for Self-Discipline
-====================================================
 
 In this chapter, we'll explore how to develop strategies for self-discipline in your business endeavors.
 

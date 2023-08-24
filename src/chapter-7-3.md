@@ -1,5 +1,3 @@
-Seeking Feedback and Constructive Criticism
-=======================================================
 
 Seeking feedback and constructive criticism is an essential practice for personal responsibility and accountability in business. This chapter explores the importance of seeking feedback, techniques for receiving constructive criticism, and leveraging feedback to drive growth and improvement.
 

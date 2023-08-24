@@ -1,5 +1,3 @@
-Techniques for Developing Strategies for Self-Discipline
-===================================================================
 
 In the journey of being a self-disciplined entrepreneur, developing effective strategies for self-discipline is essential for achieving personal responsibility and accountability in business. In this chapter, we will explore various techniques that can help entrepreneurs strengthen their self-discipline and stay focused on their goals.
 

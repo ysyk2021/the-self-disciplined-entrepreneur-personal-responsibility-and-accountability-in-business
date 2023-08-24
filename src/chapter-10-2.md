@@ -1,4 +1,3 @@
-# Continuous Learning and Improvement
 
 In this chapter, we'll explore the importance of continuous learning and improvement in sustaining self-discipline efforts over the long-term.
 

@@ -1,5 +1,3 @@
-Techniques for Holding Yourself Accountable
-======================================================
 
 In the journey of becoming a self-disciplined entrepreneur, personal responsibility and accountability are crucial for success. Holding oneself accountable ensures that goals are achieved, progress is made, and actions align with intentions. In this chapter, we will explore various techniques that can help entrepreneurs effectively hold themselves accountable.
 

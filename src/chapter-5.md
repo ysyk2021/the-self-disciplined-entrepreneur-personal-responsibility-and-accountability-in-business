@@ -1,5 +1,3 @@
-Chapter 5: Cultivating Habits of Success
-========================================
 
 In this chapter, we'll explore how to cultivate habits of success in your business endeavors.
 

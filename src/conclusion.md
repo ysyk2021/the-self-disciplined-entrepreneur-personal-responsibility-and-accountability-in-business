@@ -1,4 +1,3 @@
-# Conclusion
 
 In this final chapter, we'll recap the key points and strategies discussed in this book for developing self-discipline as an entrepreneur, provide final recommendations, and suggest future directions for research and practice.
 

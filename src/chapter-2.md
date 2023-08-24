@@ -1,5 +1,3 @@
-Chapter 2: Overview of Self-Discipline
-======================================
 
 In this chapter, we'll provide an overview of self-discipline and explore different perspectives and approaches to self-discipline. We'll also discuss the impact of self-discipline on business performance and techniques for overcoming common challenges in self-discipline.
 

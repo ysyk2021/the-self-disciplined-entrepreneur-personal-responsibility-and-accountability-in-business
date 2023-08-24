@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this chapter, we'll introduce the topic of self-discipline and personal responsibility in entrepreneurship, discuss their importance, benefits, and challenges, and explain why understanding their role is critical for business success.
 
